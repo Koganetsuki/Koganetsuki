@@ -1,5 +1,6 @@
-# Koganetsuki
-![texto](https://telegra.ph//file/cbf5a8d3bdce2eb864c27.jpg)
+![texto](https://telegra.ph//file/0fa96a40e16189be867f4.jpg)
+
+---
 
 I'm a brazilian guy who likes to spend time trying to do things but never finishing any of them.
 
